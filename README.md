@@ -3,11 +3,12 @@
 $\color{#ff0000}{we}$ $\color{#ff6900}{love}$ $\color{#04ff00}{mushi}$ $\color{#00b4ff}{songs}$ $\color{#ffffff}{°.°}$
 
 
-info ^o^
-- thanks for spending time reading this!! we appreciate it alot!!!!
+info ^o^!!
 
-+ medically diagnosed/regconised osdd , collectively they/them
+-. thanks for spending time reading this!! we appreciate it alot!!!!
+
++. medically diagnosed/regconised osdd , collectively they/them
 
 : due to financial issues, our treatment is no longer available, sadly we have to do our own research about osdd sys,, 
 
-+ were friendly and openly welcoming new mutals &friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
++. were friendly and openly welcoming new mutals &friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
