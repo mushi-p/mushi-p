@@ -9,7 +9,7 @@ info ^o^!!
 
 +. medically diagnosed/regconised osdd , collectively they/them
 
-: due to financial issues, our treatment is no longer available, sadly we have to do our own research about osdd sys,, 
+: due to financial issues, our treatment is no longer available, sadly we have to do our own research about osdd sys & treatment,, 
 
 +. were friendly and openly welcoming new mutals &friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
 
