@@ -12,3 +12,11 @@ info ^o^!!
 : due to financial issues, our treatment is no longer available, sadly we have to do our own research about osdd sys,, 
 
 +. were friendly and openly welcoming new mutals &friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
+---
+misc ^3^!!
+
+: suspected ocd + adhd , were not sure so we didnt add it on the top,,,,
+
++. we can speak 3 languages!! though were not the best with 3 of them,, (english,vietnamese,chinese)
+
++. we love music related fandoms / musical ,pls pls let us know more fandoms and musicals please +_+!!!
