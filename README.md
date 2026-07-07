@@ -3,7 +3,7 @@
 $\color{#ff0000}{we}$ $\color{#ff6900}{love}$ $\color{#04ff00}{mushi}$ $\color{#00b4ff}{songs}$ $\color{#ffffff}{°.°}$
 
 
-info ^o^!!
+ info ^o^!! (will be added more,still a wip)
 
 -. thanks for spending time reading this!! we appreciate it alot!!!!
 
@@ -13,11 +13,16 @@ info ^o^!!
 
 +. were friendly and openly welcoming new mutals &friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
 
+: (mostly) undiagnosed system of 17 , host includes Andres & Sorrow
+
 ---
+ extras @-@
 
-misc ^3^!!
+: bpd, c-ptsd, happy depression, personality disorder, mostly we have social awkward , but dont hesitant to communicate , we promise were listening
 
-: suspected ocd + adhd , were not sure so we didnt add it on the top,,,,
+: suspected ocd + adhd (were not fully sure if we have it.)
+
+ misc ^3^!!
 
 +. we can speak 3 languages!! though were not the best with 3 of them,, (english,vietnamese,chinese)
 
