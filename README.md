@@ -18,7 +18,7 @@ $\color{#ff0000}{we}$ $\color{#ff6900}{love}$ $\color{#04ff00}{mushi}$ $\color{#
 ---
  extras @-@
 
-: bpd, c-ptsd, happy depression, personality disorder, mostly we have social awkward , but dont hesitant to communicate , we promise were listening
+: bpd, c-ptsd, happy depression, personality disorder, mostly were social awkward , but dont hesitant to communicate , we promise were listening
 
 : suspected ocd + adhd (were not fully sure if we have it.)
 
