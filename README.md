@@ -13,7 +13,7 @@ $\color{#ff0000}{we}$ $\color{#ff6900}{love}$ $\color{#04ff00}{mushi}$ $\color{#
 
 +. were friendly and openly welcoming new mutals &friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
 
-: (mostly) undiagnosed system of 17 , host includes Andres & Sorrow
+: a system of 17 , host includes Andres & Sorrow
 
 ---
  extras @-@
