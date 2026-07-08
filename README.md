@@ -13,12 +13,12 @@ $\color{#ff0000}{we}$ $\color{#ff6900}{love}$ $\color{#04ff00}{mushi}$ $\color{#
 
 +. were friendly and openly welcoming new mutals &friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
 
-: a system of 17 , host includes Andres & Sorrow
+: a system of 18 , host includes Andres & Sorrow
 
 ---
  extras @-@
 
-: bpd, c-ptsd, happy depression, personality disorder, mostly were social awkward , but dont hesitant to communicate , we promise were listening
+: bpd, happy depression, personality disorder, mostly were social awkward , but dont hesitant to communicate , we promise were listening
 
 : suspected ocd + adhd (were not fully sure if we have it.)
 
