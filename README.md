@@ -9,11 +9,11 @@ $\color{#ff0000}{we}$ $\color{#ff6900}{love}$ $\color{#04ff00}{mushi}$ $\color{#
 
 +. medically diagnosed/regconised osdd , collectively they/them
 
-: due to financial issues, our treatment is no longer available, sadly we have to do our own research about osdd sys & treatment,, 
+: due to financial issues, our treatment is no longer available, sadly we have to do our own research about osdd.
 
 +. were friendly and openly welcoming new mutuals & friends!! interacting & c+h heavy encouraged!! we dont bite,promise.
 
-: a system of 18 , host includes Andres & Sorrow
+: a system of 25+ , host includes Andres & Sorrow
 
 ---
  extras @-@
