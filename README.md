@@ -1,3 +1,1 @@
 <img width="735" height="486" alt="zalo_23627209849715" src="https://github.com/user-attachments/assets/80e4a6d1-0241-4692-b0fc-820f2204b8f1" />
-
-spam follow acc , info will be in strawpage ( later will be added )
